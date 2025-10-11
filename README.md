@@ -1,8 +1,2 @@
-
-      
-<img width="1280" height="780" alt="tumblr_2a61a47e67088267f17967b1e7465421_8bd4c2d1_1280" src="https://github.com/user-attachments/assets/6ed733b1-c36c-42be-959e-5b14c55d7251" />
-
-
-
-
-
+　<p align="center">
+   <img src="https://github.com/user-attachments/assets/a25dc832-4d8d-4a78-a574-ed4e3d8c4509" />
