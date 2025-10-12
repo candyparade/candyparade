@@ -1,5 +1,13 @@
-<p align="center">     
-   
-![tumblr_4bc2d15354c4efd96bcdb5856102a64c_84d3810a_2048](https://github.com/user-attachments/assets/a8426830-b3cc-4748-9b76-594ae896cd05)
+<img width="2048" height="822" alt="tumblr_0c248fcb0de6672c9f4c74859fda0054_3c513954_2048" src="https://github.com/user-attachments/assets/99a03163-3634-478d-b3ce-66d1e81a33a7" />
 
-<p align="center">     
+　<p align="center"> 
+
+
+
+　　<p align="center"><img width="400" height="90" alt="tumblr_8a4c7e878c9f479d02d0acf91c5fa8d3_4272ca9e_1280" src="https://github.com/user-attachments/assets/696fd9c1-af78-45e8-9139-e1e710593480" />
+
+　<p align="center">  
+
+　<p align="center">$${\color{violet}look \space at \space this \space dude}$$
+
+
