@@ -4,4 +4,4 @@
 
 <p align="center">  
 
-　<p align="center">[twitter](https://x.com/catfrin)  [prns.page](https://en.pronouns.page/catfrin)
+　<p align="center">[twitter](https://x.com/catfrin)  [prns.page](https://en.pronouns.page/@catfrin)
