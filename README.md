@@ -1,4 +1,4 @@
-<img width="2048" height="822" alt="tumblr_0c248fcb0de6672c9f4c74859fda0054_3c513954_2048" src="https://github.com/user-attachments/assets/99a03163-3634-478d-b3ce-66d1e81a33a7" />
+<img width="2048" height="407" alt="tumblr_0c248fcb0de6672c9f4c74859fda0054_3c513954_2048" src="https://github.com/user-attachments/assets/99a03163-3634-478d-b3ce-66d1e81a33a7" />
 
 　<p align="center"> 
 
@@ -8,6 +8,6 @@
 
 　<p align="center">  
 
-　<p align="center">$${\color{violet}look \space at \space this \space dude}$$
+　<p align="center">$${\color{purple}𝗅𝗈𝗈𝗄 \space 𝖺𝗍 \space 𝗍𝗁𝗂𝗌 \space 𝖽𝗎𝖽𝖾}$$
 
 
