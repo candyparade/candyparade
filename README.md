@@ -1,7 +1,7 @@
-<img width="1500" height="500" alt="tumblr_7566c0f6269ce8b0aa6e52cbbc7d0d07_03149893_2048" src="https://github.com/user-attachments/assets/df76c197-c37d-4113-873a-1463a10f2d40" />
+<img width="1280" height="720" alt="tumblr_918b0908aad8e30148bcf09517e83cbd_46fe92d6_2048" src="https://github.com/user-attachments/assets/aa1e2122-5d95-4609-9123-d089aa405021" />
 
 <p align="center">⠀⠀
 <p align="center">
 <p align="center">
  
-　<p align="center">[twitter](https://x.com/catfriin)   [pronouns.page](https://en.pronouns.page/@catfrin)   [atabook](https://angelcrush.atabook.org)
+　<p align="center">[twitter](https://x.com/oceanfuel)   [pronouns.page](https://en.pronouns.page/@catfrin)   [atabook](https://angelcrush.atabook.org)
