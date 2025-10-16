@@ -4,4 +4,4 @@
 <p align="center">
 <p align="center">
  
-　<p align="center">[twitter](https://x.com/oceanfuel)   [pronouns.page](https://en.pronouns.page/@catfrin)   [atabook](https://angelcrush.atabook.org)
+　<p align="center">[twitter](https://x.com/catfriin)   [pronouns.page](https://en.pronouns.page/@catfrin)   [atabook](https://angelcrush.atabook.org)
