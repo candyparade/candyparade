@@ -5,3 +5,12 @@
 <p align="center">
  
 　<p align="center">[twitter](https://x.com/catfriin)   [pronouns.page](https://en.pronouns.page/@catfrin)   [atabook](https://angelcrush.atabook.org)
+
+<p align="center">⠀⠀
+<p align="center">⠀⠀⠀
+<p align="center">⠀⠀⠀⠀
+
+![IMG_20251016_223624_460](https://github.com/user-attachments/assets/75b6a949-7a6f-4076-8b9c-8e86a048653e)
+
+<p align="center">guys rate my art
+
