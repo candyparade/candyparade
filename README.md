@@ -6,10 +6,13 @@
 
 ⠀⠀⠀⠀⠀⠀
 
-⠀<p align="center">iwcare⠀unless⠀[kate](https://github.com/aevsria).
-<p align="center">w2i,⠀usually⠀offtab
+⠀<p align="center">﹒　    　 †　　　    𓈒　   　　୧　    　　₎
+⠀<p align="center">iwcare⠀unless⠀[kate](https://github.com/aevsria)
+     
+ <p align="center">w2i　　usually　offtab
+⠀<p align="center">₊　 　　⌓⌓ 　   　  ⚤⠀　  　﹕　　 ♡
  
-　<p align="center">[twitter](https://x.com/heartgun)   [pronouns.page](https://en.pronouns.page/@catfrin)   [atabook](https://heartdoll.atabook.org)
+　<p align="center">[twitter](https://x.com/woundache)   [pronouns.page](https://en.pronouns.page/@catfrin)   [atabook](https://woundache.atabook.org)
 
 
 
