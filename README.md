@@ -8,7 +8,7 @@
 <p align="center">$${\color{darkpink}── .✦}$$
 <p align="center">⠀⠀⠀⠀⠀⠀
  
-　<p align="center">[twitter](https://x.com/catfriin)   [pronouns.page](https://en.pronouns.page/@catfrin)   [atabook](https://angelcrush.atabook.org)
+　<p align="center">[twitter](https://x.com/magicwounds)   [pronouns.page](https://en.pronouns.page/@magicwounds)   [atabook](https://magicwounds.atabook.org)
 
 <p align="center">⠀⠀
 <p align="center">⠀⠀⠀
