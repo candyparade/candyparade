@@ -2,10 +2,10 @@
 
 　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=(🌙)&color=efd296)
  
-##### ⠀<p align="center">[twitter](https://x.com/woundache)
-##### ⠀<p align="center">[pronouns.page](https://en.pronouns.page/@catfrin)
-##### ⠀<p align="center">[atabook](https://woundache.atabook.org)
-##### ⠀<p align="center">[roblox](https://www.roblox.com/users/4775245918/profile)
+ ⠀<p align="center">[twitter](https://x.com/woundache)
+ ⠀<p align="center">[pronouns.page](https://en.pronouns.page/@catfrin)
+ ⠀<p align="center">[atabook](https://woundache.atabook.org)
+ ⠀<p align="center">[roblox](https://www.roblox.com/users/4775245918/profile)
 
 
 
