@@ -1,10 +1,10 @@
-<img src="https://github.com/user-attachments/assets/3d8dff1d-6f22-40ee-8618-9af6911c4196" align="right" width="350px"/>
+<img src="https://github.com/user-attachments/assets/68f9e068-5590-4268-b969-d3de62327f93" align="right" width="350px"/>
 
-　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=(🌙)&color=efd296)
+　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=(୭)&color=fbd3dc)
  
-⠀⠀<p align="center">${\textsf{\color{#DB9679}⠀୭ ⠀⠀⠀cassidy⠀⠀╱⠀⠀rue⠀⠀⠀16}}$<br>
-⠀⠀<p align="center">${\textsf{\color{#d7a284}⠀𖹭 ⠀⠀dni if stated⠀⠀⠀iwcare}}$<br>
+⠀⠀<p align="center">${\textsf{\color{#fdd5d9} ⠀∿　　♡　　my　heart }}$<br>
+⠀⠀<p align="center">${\textsf{\color{#f7dbdf} ⠀is　glowing⠀⠀⠀⠀⠀༜ }}$<br>
 
 
 
-⠀<p align="center">[twitter](https://x.com/starlimp) [新book](https://starlimp.atabook.org) [prns.page](https://en.pronouns.page/@starlimp)
+⠀<p align="center">[twitter](https://x.com/painticket_) [新book](https://starlimp.atabook.org) [prns.page](https://en.pronouns.page/@starlimp)
