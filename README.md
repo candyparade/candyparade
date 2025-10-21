@@ -4,8 +4,10 @@
 <img src="https://github.com/user-attachments/assets/99080d3b-ffaf-425d-8825-0da4f1a69f43" align="right" width="350px"/>
 
 　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=(🍬)&color=fbd3dc)
+<p align="center">⠀<img width="80" height="79" alt="Untitled14_20251021061154" src="https://github.com/user-attachments/assets/5f839852-eeef-4dbb-b85b-60b0c710e311" />
  
-⠀⠀<p align="center">${\textsf{\color{#fdd5d9} ⠀∿　　♡　　my　heart }}$<br>
+ ⠀<p align="center">${\textsf{\color{#fdd5d9} ⠀∿　　♡
+　　my　heart }}$<br>
 ⠀⠀<p align="center">${\textsf{\color{#f7dbdf} ⠀is　glowing⠀⠀⠀⠀⠀༜ }}$<br>
 
 
