@@ -1,6 +1,9 @@
-<img src="https://github.com/user-attachments/assets/68f9e068-5590-4268-b969-d3de62327f93" align="right" width="350px"/>
+<img width="1000" height="1000" alt="Untitled13_20251021060930" src="https://github.com/user-attachments/assets/e7580adb-10c0-4129-b7e7-dae10c05cf21" />
 
-　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=(୭)&color=fbd3dc)
+
+<img src="https://github.com/user-attachments/assets/99080d3b-ffaf-425d-8825-0da4f1a69f43" align="right" width="350px"/>
+
+　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=(🍬)&color=fbd3dc)
  
 ⠀⠀<p align="center">${\textsf{\color{#fdd5d9} ⠀∿　　♡　　my　heart }}$<br>
 ⠀⠀<p align="center">${\textsf{\color{#f7dbdf} ⠀is　glowing⠀⠀⠀⠀⠀༜ }}$<br>
