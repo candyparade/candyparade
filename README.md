@@ -1,10 +1,10 @@
-<img width="1000" height="1000" alt="Untitled13_20251021060930" src="https://github.com/user-attachments/assets/e7580adb-10c0-4129-b7e7-dae10c05cf21" />
+<img width="1000" height="148" alt="tumblr_ae36c02a2814f88d08f7c16b0728e050_d189f47b_1280" src="https://github.com/user-attachments/assets/9f6afa4e-ee49-4cd0-bc9e-12de633f40e8" />
 
 
-<img src="https://github.com/user-attachments/assets/99080d3b-ffaf-425d-8825-0da4f1a69f43" align="right" width="350px"/>
+<img src="https://github.com/user-attachments/assets/5f2ad8b7-199f-46aa-8384-2df03af4e61c" align="right" width="330px"/>
 
-　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=(🍬)&color=fbd3dc)
-<p align="center">⠀<img width="80" height="79" alt="Untitled14_20251021061154" src="https://github.com/user-attachments/assets/5f839852-eeef-4dbb-b85b-60b0c710e311" />
+　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=(╱⠀♡)&color=fbd3dc)
+
  
  ⠀<p align="center">${\textsf{\color{#fdd5d9} ⠀∿　　♡
 　　my　heart }}$<br>
