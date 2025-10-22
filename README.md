@@ -1,14 +1,18 @@
 <img width="1000" height="148" alt="tumblr_ae36c02a2814f88d08f7c16b0728e050_d189f47b_1280" src="https://github.com/user-attachments/assets/9f6afa4e-ee49-4cd0-bc9e-12de633f40e8" />
 
 
-<img src="https://github.com/user-attachments/assets/5f2ad8b7-199f-46aa-8384-2df03af4e61c" align="right" width="330px"/>
-
-　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=(╱⠀♡)&color=fbd3dc)
+ ⠀<p align="center">　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
 
  
- ⠀<p align="center">${\textsf{\color{#fdd5d9} ⠀∿　　♡
+
+<img src="https://github.com/user-attachments/assets/11daa272-0933-4c33-8cb1-a4a1652b8353" align="right" width="450px"/>
+
+　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=(╱⠀♡)&color=9A89AB)
+
+ 
+ ⠀<p align="center">${\textsf{\color{#F9D7E5} ⠀∿　　♡
 　　my　heart }}$<br>
-⠀⠀<p align="center">${\textsf{\color{#f7dbdf} ⠀is　glowing⠀⠀⠀⠀⠀༜ }}$<br>
+⠀⠀<p align="center">${\textsf{\color{#E49FD5} ⠀is　glowing⠀⠀⠀⠀⠀༜ }}$<br>
 
 
 
