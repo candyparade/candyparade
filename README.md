@@ -1,4 +1,4 @@
-<p align="center">${\textsf{\color{#e6a5c1} do you think i lied?}}$<br>
+<p align="center">${\textsf{\color{#e6a5c1} do you think i lied, though?}}$<br>
 
 ⠀<p align="center"><img src="https://github.com/user-attachments/assets/b68740ea-6b9b-48c8-85ec-f410a3a3d656" align="center" width="550px"/>
 
